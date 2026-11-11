@@ -1,0 +1,1 @@
+# Persona5-KDE-animated-splashscreen
